@@ -14,3 +14,5 @@
 1. 专业老师、学长学姐的指导和引领
 2. 浓厚的学习氛围
 3. 和志同道合且优秀的同学共同进步，一起完成作品，参加比赛。
+
+[喜欢的图片](https://github.com/wyr918/WuYiran_414join/blob/main/Haikyuu-1945287-wallhere.com.jpg)
